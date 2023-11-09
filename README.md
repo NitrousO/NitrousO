@@ -1,0 +1,5 @@
+- Hi, I’m @NitrousO
+- I’m interested in Game Development, and some software development. I am currently working on many complicated scratch games, and am rolling through an actual game with unity.
+- I’m currently learning hhow to better optimize and organize my code, because I am very unorganized.
+- I’m looking to collaborate on nothing at the moment, but maybe there will be something in the future. and just an FYI, because of my coding hobby, I fall behind in school work, so Ill take any help I can take. its easy and I can do it, but I don't really want to do it, don't pressure yourself though.
+- Reach me at this email; NitrousJ_0x1de@outlook.com.
